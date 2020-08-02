@@ -1,0 +1,2 @@
+# Geeksman_AISquad_Project1_NITIKA
+WASTE CLASSIFICATION
